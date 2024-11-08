@@ -1,3 +1,8 @@
+**NOTE:**
+After end of anniversary day (like November 9 or later), you need to upgrade to Nese Vista or later versions to ensure secure (nostalgia later).
+
+________________________________________
+
 Hello everyone. Welcome to the big celebration day. Today, on November 8, 2024, Nese XP SP1 (Service Pack 1) eos anniversary day. Since November 8, 2023, everyone is sad because, SP1 (Service Pack 1) is important. Happy celebration day!
 
 # Credits:
